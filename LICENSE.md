@@ -1,4 +1,4 @@
-# 
+# quantitative pump.fun sniper bot | slippage-control + liquidity-sniping offers the most advanced pump.fun sniper bot, with slippage-control and liquidity-sniping. Ideal for
 
 
 
